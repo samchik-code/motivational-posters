@@ -1,2 +1,0 @@
-# motivational-posters
-motivational posters
